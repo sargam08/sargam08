@@ -8,7 +8,6 @@
 
 - 📫 How to reach me **sargams797@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1KWVA_Q2818sGUZ3mN-knHQax0ErLetFM/view?usp=sharing](https://drive.google.com/file/d/1KWVA_Q2818sGUZ3mN-knHQax0ErLetFM/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
